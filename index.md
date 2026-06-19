@@ -2,7 +2,7 @@
 
 
 
-![Acceder](https://chatgpt.com/g/g-6a33e10ce6d08191b575c19d7b7389ec-cueva-mamut)
+[Acceder](https://chatgpt.com/g/g-6a33e10ce6d08191b575c19d7b7389ec-cueva-mamut)
 
 
 ## Política de privacidad
